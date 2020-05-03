@@ -12,7 +12,7 @@ All the participants of this event will be provided with a Certificate in associ
 
 ## Important Instrcutions-
 
--You have to submit your activities on Facebook page  by tagging Wealthy Waste, any member of Wealthy waste ( Sayak Acharjee or Harshit Anand) and IEM and also you have to mention the website link in your post - (www.thewealthywaste.in) 
+-You have to submit your activities on Facebook page  by tagging Wealthy Waste, any member of Wealthy waste ( Sayak Acharjee or Harshit Anand) and IEM and also you have to mention the website link in your post - www.thewealthywaste.in 
 
 -These following should be there in your post or else your activities won't be considered as complete and will be rejected and you won't get any certificate.
 
@@ -20,12 +20,12 @@ All the participants of this event will be provided with a Certificate in associ
 
 -All the winners will be getting certificates and a gift hamper from Wealthy waste.
 
--(Gift Hampers will be given after the college reopen by Wealthy waste).
+-(Gift Hampers will be given after the college reopens by Team Wealthy Waste).
 
 ## Registration Link: [Here](https://forms.gle/rF6JFcNoUmoKRtZR7)
 
+# From Team Wealthy Waste
 This is the first ever online event being conducted by Wealthy waste in association with IEM. - THE EXPRESSION.
-
 Wish you all the best for the event .
 
 For any further queries you can contact 
@@ -34,4 +34,4 @@ For any further queries you can contact
 
 Thank you 
 Team WEALTHY WASTE
-(www.thewealthywaste.in)
+www.thewealthywaste.in
