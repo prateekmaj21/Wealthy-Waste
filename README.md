@@ -22,10 +22,21 @@ All the participants of this event will be provided with a Certificate in associ
 
 -(Gift Hampers will be given after the college reopens by Team Wealthy Waste).
 
-## Registration Link: [Here](https://forms.gle/rF6JFcNoUmoKRtZR7)
+# Registration Link: [Here](https://forms.gle/rF6JFcNoUmoKRtZR7)
 
-# From Team Wealthy Waste
-This is the first ever online event being conducted by Wealthy waste in association with IEM. - THE EXPRESSION.
+## Our Partners for the Event-
+1. The Lions Club of Kolkata, IEM
+2. Oswal Education Sanstha, Nagpur
+3. Kabuliwala Biryani
+4. Resonance Eduventures
+5. Institute of Engineering and Management, Kolkata
+6. Zero Dollar Security
+7. ELT@I
+
+
+## From Team Wealthy Waste
+This is the first ever online event being conducted by Wealthy waste in association with IEM.
+THE EXPRESSION.
 Wish you all the best for the event .
 
 For any further queries you can contact 
