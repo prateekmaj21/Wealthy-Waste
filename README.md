@@ -9,17 +9,20 @@ This event will be online, and in association with Department of Basic Science  
 All the participants of this event will be provided with a Certificate in association with IEM & Zero Dollar Security. There will different types of events taking place in different days. Registration links will be provided time to time. 
 
 ### NO REGISTRATION FEES . 
-You have to submit your activities on Facebook page  by tagging Wealthy Waste, any member of Wealthy waste ( Sayak Acharjee or Harshit Anand) and IEM and also you have to mention the website link in your post - (www.thewealthywaste.in) 
 
-These following should be there in your post or else your activities won't be considered as complete and will be rejected and you won't get any certificate.
+## Important Instrcutions-
 
-(SO KINDLY TAKE CARE OF ABOVE MENTIONED RULES FOR SUBMISSION ).
+-You have to submit your activities on Facebook page  by tagging Wealthy Waste, any member of Wealthy waste ( Sayak Acharjee or Harshit Anand) and IEM and also you have to mention the website link in your post - (www.thewealthywaste.in) 
 
-All the winners will be getting certificates and a gift hamper from Wealthy waste.
+-These following should be there in your post or else your activities won't be considered as complete and will be rejected and you won't get any certificate.
 
-(Gift Hampers will be given after the college reopen by Wealthy waste).
+-(SO KINDLY TAKE CARE OF ABOVE MENTIONED RULES FOR SUBMISSION ).
 
-Registration Link: [Here](https://forms.gle/rF6JFcNoUmoKRtZR7)
+-All the winners will be getting certificates and a gift hamper from Wealthy waste.
+
+-(Gift Hampers will be given after the college reopen by Wealthy waste).
+
+## Registration Link: [Here](https://forms.gle/rF6JFcNoUmoKRtZR7)
 
 This is the first ever online event being conducted by Wealthy waste in association with IEM. - THE EXPRESSION.
 
