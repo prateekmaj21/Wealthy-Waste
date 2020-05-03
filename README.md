@@ -12,7 +12,7 @@ All the participants of this event will be provided with a Certificate in associ
 
 ## Important Instrcutions-
 
--You have to submit your activities on Facebook page  by tagging Wealthy Waste, any member of Wealthy waste ( Sayak Acharjee or Harshit Anand) and IEM and also you have to mention the website link in your post - [www.thewealthywaste.in](www.thewealthywaste.in) 
+-You have to submit your activities on Facebook page  by tagging Wealthy Waste, any member of Wealthy waste ( Sayak Acharjee or Harshit Anand) and IEM and also you have to mention the website link in your post - [http://thewealthywaste.in/](http://thewealthywaste.in/) 
 
 -These following should be there in your post or else your activities won't be considered as complete and will be rejected and you won't get any certificate.
 
@@ -45,4 +45,4 @@ For any further queries you can contact
 
 Thank you 
 Team WEALTHY WASTE
-[www.thewealthywaste.in](www.thewealthywaste.in)
+[http://thewealthywaste.in/](http://thewealthywaste.in/)
